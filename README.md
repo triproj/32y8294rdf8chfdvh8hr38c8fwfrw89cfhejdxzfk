@@ -1,2 +1,2 @@
-# 32y8294rdf8chfdvh8hr38c8fwfrw89cfhejdxzfk
+# Download Tri IMG secret page
 Download Tri OS IMG
